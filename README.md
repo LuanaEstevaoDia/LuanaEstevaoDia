@@ -1,5 +1,5 @@
 
-![anime-estudar](https://github.com/LuanaEstevaoDia/Luana-Freitas/assets/169275261/7a63ce47-dc29-4062-ac23-615176215b11)
+![anime-estudar](https://github.com/LuanaEstevaoDia/LuanaEstevaoDia/assets/169275261/8ffae576-3be7-432e-b3bc-a61f23a96792)
 
 # Olá,sou Luana Freitas  :fallen_leaf:
 
